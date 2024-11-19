@@ -37,6 +37,9 @@ We may update this Privacy Policy from time to time to reflect changes in the Ap
 If you have any questions or concerns about this Privacy Policy, please contact us at:
 
 [SULAYMANIYAH INTERNATIONAL AIRPORT]
+
 [Sulaymaniyah International Airport Raparin District Sulaymaniyah Kurdistan IRAQ]
+
 [info@sulairport.krd]
+
 [+964 53 3173322]
