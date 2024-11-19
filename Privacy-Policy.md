@@ -1,4 +1,5 @@
 Privacy Policy for [Sul. International Airport]
+
 Effective Date: [November 19, 2024]
 
 Thank you for using [Sul. International Airport] (“the App”). Your privacy is important to us, and we are committed to protecting it. This Privacy Policy outlines how we handle your information while you use our App.
